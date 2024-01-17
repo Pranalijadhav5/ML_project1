@@ -1,2 +1,2 @@
 # ML_project1
-sonuuu
+Nashik is 4th largest city in Maharastra ,Located at an approximate distance of 200 kms from Mumbai and Pune, Nashik gained traction as a vacation hotspot and a location for investing in one’s retirement home .As real estate prices in Pune and Mumbai soared, wine capital of India started being considered as a viable option for living. Social infrastructure gradually improved, with the economic growth of the city and with people choosing the region for their permanent homes.
